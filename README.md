@@ -1,0 +1,2 @@
+# Power-factor
+Guitsetgeh ajil
